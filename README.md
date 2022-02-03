@@ -1,2 +1,2 @@
 # Exquisite-corpse-WoutervdVijver
-Git Exercise becode
+This is the Git Exercise becode to get to familiar with git
