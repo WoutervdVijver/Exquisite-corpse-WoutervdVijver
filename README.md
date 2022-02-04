@@ -9,7 +9,7 @@ But yesterday we found the mauled body of farmer Benson so we headed out to inve
 The mansion itself had always been part of this town's history.
 Build in 1805 with over twenty chambers, it was fit for a noble.
 
-Now, it was decripit, rotten and infested by vermin. We were nerveous about what we might find inside.
+Now, it was decripit, rotten and infested by vermin. We were nervous about what we might find inside.
 
 We heard some noises, it sounded like some kind of animal
 A four-legged animal, probably....
