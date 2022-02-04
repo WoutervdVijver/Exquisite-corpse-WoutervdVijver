@@ -17,3 +17,9 @@ But when approaching the entrance, we noticed it was a human, just not a regular
 
 His fur was all in blood, his eyes were of fluorescent green. I still remember the grin of his fangs.
 The werewolf could speak human language and said: "Follow me, I will introduce you to my Master".
+
+We were paralyzed and could mumble nothing but 'yyyeah'. 
+Trustworthy as we are, we followed the werewolf. 
+Anxious thoughts were racing through our minds.
+Where will he bring us? Will we ever make it out Alive? 
+
