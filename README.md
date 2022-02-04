@@ -23,3 +23,4 @@ Trustworthy as we are, we followed the werewolf.
 Anxious thoughts were racing through our minds.
 Where will he bring us? Will we ever make it out Alive? 
 
+We glanced at each other. Neither of us knew what to expect, but we couldn't say no to the warewolf. As terrified we were, we were also curious to meet the warewolf's master. 
