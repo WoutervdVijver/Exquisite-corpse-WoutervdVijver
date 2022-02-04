@@ -14,3 +14,6 @@ Now, it was decripit, rotten and infested by vermin. We were nerveous about what
 We heard some noises, it sounded like some kind of animal
 A four-legged animal, probably....
 But when approaching the entrance, we noticed it was a human, just not a regular human.. It was a werewolf!
+
+His fur was all in blood, his eyes were of fluorescent green. I still remember the grin of his fangs.
+The werewolf could speak human language and said: "Follow me, I will introduce you to my Master".
